@@ -1,4 +1,4 @@
-# Somethings i want saw
+# Somethings i want to speak
 
 I had the original intention by sharing the code to help others .
 If someone thinks i violated his rights or her right.
